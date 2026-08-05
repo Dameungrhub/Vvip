@@ -1,2 +1,5 @@
-# ENGGA PERNAH CARCK 
-BY | UMEMARO
+# DAMEUNGRHUB ON TOP #1
+Owner| Umemaro
+Dev  | Cipung
+Dev  | Sell
+Staf | Keyzrrr
