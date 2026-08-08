@@ -1,5 +1,5 @@
 # DAMEUNGRHUB ON TOP #1
 * Owner | Umemaro
 * Dev   | Cipung
-* Dev   | Sell
+* Mod   | Sell
 * Staff | Keyzrrr
